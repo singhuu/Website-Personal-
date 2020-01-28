@@ -2,6 +2,8 @@ I need work pls, if you have come till here then I know you can do something abo
 Contact me: sshs@pm.me
 This is my first website. Did not know much of CSS, I admit it was fun
 
+To view the website: https://www.shanta.nu
+
 Enjoy!
 
                                              _..--------.._
